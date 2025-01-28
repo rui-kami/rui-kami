@@ -1,1 +1,6 @@
-![](https://64.media.tumblr.com/551c5f7cb670d6b24968da483de3b5e1/dc6648262ddac9c0-f0/s500x750/e28f6e546b9560aa67a5caa07c340cecdcf92a04.pnj)
+![](https://64.media.tumblr.com/8b7c4e3071c51e27fd62ecc12dbbd3fc/062452595411cec8-c8/s2048x3072/326790886b11ea2c5ea44b73122108ac4874f771.pnj)
+
+wip
+
+
+![](https://64.media.tumblr.com/f08948c69d85bc711db9aa5545520572/062452595411cec8-e1/s2048x3072/c18a8a0dca6e0b0eece734bd5b521fd74e862577.pnj)
