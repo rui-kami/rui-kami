@@ -2,6 +2,8 @@
 
 ❥Get to know me more personally! (Status mostly)
 
+(this is a matching github account, my real github is GYARU-EIJIRO BTW)
+
           You probably seeing this on my discord or pt skin!
           
 ｡ꪆৎ ˚ ⋆.
