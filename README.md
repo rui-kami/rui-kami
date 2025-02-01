@@ -30,11 +30,11 @@ Dniucf/dniuf, I'm probably really sad and just want to be with friends rn or I w
 
 ———
 
-Dniufam, not very used but it's mostlyused towards my mother <3
+Dniufam, not very used but it's mostly used towards my mother <3
 
 ———
 
-Dniup, I'm not in a relationship (don't plan on dating heh), but my alters might have this so .. yeah!
+Dniup, very often, my alters also might have this so .. yeah!
 
 ^^^^^^
 
@@ -52,7 +52,6 @@ Gyaru enjoyers: another encourage int, PLEASEE
 
 ｡ꪆৎ ˚ ⋆.
 
-**Don't ask about my relationship status please </3**
 
 
 
